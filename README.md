@@ -1,6 +1,6 @@
 # 📌 Meghavath Rahul  
 
-📞 772-986-5541 | 📧 [me22b2042@iiitdm.ac.in](mailto:me22b2042@iiitdm.ac.in) | 🌐 [LinkedIn](https://www.linkedin.com/in/megavath-rahul/) | [GitHub](https://github.com/yourusername)
+📞 772-986-5541 | 📧 [me22b2042@iiitdm.ac.in](mailto:me22b2042@iiitdm.ac.in) | 🌐 [LinkedIn](https://www.linkedin.com/in/megavath-rahul/) | [GitHub](https://github.com/megavathRahul123)
 
 ---
 
